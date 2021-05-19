@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-Customise this.
+NOTE: This was my old username, but under old username(him21), I did not created any repositories or distributed it any where, or linked it anywhere, and I was not mentioned anywhere, So this username is completely unattached and discarded.
 
 <!---
 Him21/Him21 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
